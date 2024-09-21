@@ -22,7 +22,7 @@
 ---
 
 ## Consulting / Coaching 💼:
-Facing a problem or challenge? Let's work together to find a solution! Feel free to reach out, and we can tackle your issues together.
+Facing a problem or challenge? Let's work together to find a solution! Feel free to reach out, and we can tackle your issues together..
 
 ## Get in Touch 💬:🌐
 
