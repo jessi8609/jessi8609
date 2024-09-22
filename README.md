@@ -17,7 +17,7 @@
   - Git, GitHub, VS Code
   - Docker, Firebase
 
-🌟 I strive for perfection in my projects and love applying cutting-edge technologies to solve real-world problems.
+🌟 I strive for perfection in my projects and love applying cutting-edge technologies to solve real-world problems...
 
 ---
 
